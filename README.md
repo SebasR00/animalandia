@@ -1,2 +1,0 @@
-# animalandia
-pagina veterinaria
